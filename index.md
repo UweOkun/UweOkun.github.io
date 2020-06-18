@@ -8,3 +8,6 @@ Inzwischen hat sich Crowley an das Leben auf der Erde gewöhnt und ist von der V
 * Mag es mit seinem (einzigen) Freund im Ritz zu essen.
 * Liebt technische Gadges
 * Hasst die Vorstellung vom Ende der Welt und Leben in der Ewigkeit, egal ob Gut oder Böse gewonnen hat
+
+Wie Crowley sagt:
+> Age does not wither, custom stale his infinite variety
