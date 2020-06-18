@@ -1,1 +1,3 @@
 # Dämon Crowley
+Eigentlich soll der Dämon Crowley bei dem letzten Kampf zwischen Himmel und Hölle mithelfen, damit das Böse letztendlich siegt; eigentlich .....
+Inzwischen hat sich Crowley an das Leben auf der Erde gewöhnt und ist von der Vorstellung, dass mit dem letzten Kampf das alles vorbei ist, gar nicht angetan.
