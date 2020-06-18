@@ -11,3 +11,5 @@ Inzwischen hat sich Crowley an das Leben auf der Erde gewöhnt und ist von der V
 
 Wie Crowley sagt:
 > Age does not wither, custom stale his infinite variety
+
+<img src="https://svgsilh.com/svg/2162179.svg"/>
